@@ -1,31 +1,31 @@
 | Folge | Name | Weitere Infos | 
 |:------|:-----|:--------|
-| 168   | [5G Update für das HarmonEi](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Harmonei)|
-| 167   | Strahlenschutz Orgon 2 Energie Tropfen plus 1 Halsreif |
-| 166   | Frequenztheraphie mit Zapper gegen Coronaviren |
-| 165   | Holistische Gesundheitswege |
-| 164   | Biologisch positive Energiesysteme |
-| 163   | Vollmond-Fries |
-| 162   | Die größte Schwurbeldichte des Netzes? |
-| 161   | Informierte Globuli |
-| 160   | Bernsteinkette für Hunde |
-| 159   | Klimaschwachsinn der AFD |
-| 158   | Astrologie |
-| 157   | viel |
-| 156   | Mondzeichen Brennholz |
-| 155   | Das Bein muss ab! Es sei denn ihr ... |
-| 154   | Wirkung der Wasserbelebung wiss. nachgewiesen |
-| 153   | Die Einhandrute |
-| 152   | Homeopathie zum aufmalen |
-| 151   | Silent Healing |
-| 150   | Das Tantra Edelstein-Ei (von Tim) |
-| 149   | Bioresonanzgeräte |
-| 148   | Der Lovetuner |
-| 147   | Flat Earth FC |
-| 146   | [Lästige Mücken und neue Homöopathie](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/laestigeMueckenUndNeueHomoeopathie)|
-| 145   | [Rumpologie](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Rumpologie)|
-| 144   | [FlatearthSingles](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/FlatearthSingles)|
-| 143   | [Das Harmonei](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Harmonei)|
-| 142   | [Combas Handypflaster](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/ComBas)|
-| 141   | [Aquion](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Aquion)|
-| 140   | [Lernpaket freie Energie](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/LernpaketFreieEnergie)|
+| 168   | [5G Update für das HarmonEi](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Harmonei)|[ambition.life](https://www.ambition.life/elektrosmog/) 
+| 167   | Strahlenschutz Orgon 2 Energie Tropfen plus 1 Halsreif |[ebay-kleinanzeigen-strahlenschutz-halsreif](https://www.ebay-kleinanzeigen.de/s-anzeige/strahlenschutz-orgon-2-energie-tropfen-plus-1-halsreif-angebot/1388958735-232-4506?utm_source=sharesheet&amp;utm_medium=social&amp;utm_campaign=socialbuttons&amp;utm_content=app_android)
+| 166   | Frequenztheraphie mit Zapper gegen Coronaviren |[slc-institut.com](https://www.slc-institut.com/index.php/frequenztherapie-shop/frequenzen-nach-krankheitsbilder/viren-und-bakterien/coronaviridae-detail) 
+| 165   | Holistische Gesundheitswege |[holistische-gesundheitswege.de](https://www.holistische-gesundheitswege.de/unser-heilangebot/informations-medizin/), [buzzwordbingogame.com](https://www.buzzwordbingogame.com/byo/?title=Methodisch+inkorrektes+Schwurbel+Bingo&exclamation=Schwurbel&free_square=Schwurbel&terms=Hom%C3%B6opathie%0D%0AGlobuli%0D%0AFreie+Energie%0D%0AHahnemann%0D%0ASteiner%0D%0APotenzierung%0D%0ASelbstheilung%0D%0AAura%0D%0AErstverschlimmerung%0D%0ASch%C3%BC%C3%9Fler-Salze%0D%0AAlternativmedizin%0D%0AKinesiologie%0D%0AChemtrail%0D%0ABovis%0D%0AMondkalender%0D%0AAstrologie%0D%0ATierkreiszeichen%0D%0ANullpunktenergie%0D%0AChakra%0D%0AMeridiane%0D%0A5G%0D%0A6G%0D%0ATorusfeld%0D%0ASchwingkreisfeld%0D%0AChi%0D%0AMana%0D%0APrana%0D%0AReiki%0D%0AOrgon%0D%0APsi%0D%0AZellged%C3%A4chtnis%0D%0AInformiertes+Wasser%0D%0ALebenskraft%0D%0ALichtwesen%0D%0AAkasha%0D%0ABernstein%0D%0APico-Technology%0D%0AWasserbelebung%0D%0AEnergiefeld%0D%0ABiofeld%0D%0AGleichgewicht%0D%0AFeng+Shui%0D%0AFeinstofflich%0D%0ABioresonanz%0D%0AG%C3%B6ttlich%0D%0AFrequenz%0D%0AFlache+Erde) 
+| 164   | Biologisch positive Energiesysteme |[bpes.de](http://www.bpes.de/) 
+| 163   | Vollmond-Fries |[vollmondfrites.ch](https://vollmondfrites.ch/) 
+| 162   | Die größte Schwurbeldichte des Netzes? |[life-bio.de](https://www.life-bio.de/vital-power-booster/)
+| 161   | Informierte Globuli |[informierteglobuli.de](https://www.informierteglobuli.de/index.php?cont=shop&amp;cat=1) 
+| 160   | Bernsteinkette für Hunde |[amazon.de](https://amzn.to/38rSy93) 
+| 159   | Klimaschwachsinn der AFD |[youtube.com](https://www.youtube.com/watch?v=yChkWOgaT1Q) 
+| 158   | Astrologie |[wikipedia.org](https://de.wikipedia.org/wiki/Astrologie) 
+| 157   | viel |[medwatch.de](https://medwatch.de/2019/12/30/wie-mobilfunkgegner-angst-vor-5g-verbreiten/), [hirntumorhilfe.de](https://www.hirntumorhilfe.de/hirntumor/andere-themen/handy/) 
+| 156   | Mondzeichen Brennholz |[vbg.lko.at](https://vbg.lko.at/mondzeichen-brennholz-2019+2500+1092362) 
+| 155   | Das Bein muss ab! Es sei denn ihr ... |[shop.buienergetik-zentrum.de](https://shop.bioenergetik-zentrum.de/iwand2), [youtube.com](https://www.youtube.com/watch?time_continue=1456&v=ZzB4hTp4Iyw&feature=emb_logo) 
+| 154   | Wirkung der Wasserbelebung wiss. nachgewiesen |[grander.com](https://www.grander.com/international/grander-wasser-news/wirkung-der-grander-wasserbelebung-wissenschaftlich-nachgewiesen) 
+| 153   | Die Einhandrute |[amazon.de](https://amzn.to/2N3eUnw) 
+| 152   | Homeopathie zum aufmalen |[amazon.de](https://amzn.to/2pOJ5ac) 
+| 151   | Silent Healing |[ascension-support-tools.com](https://ascension-support-tools.com/silent-healing-cd.aspx?cookieCheck=true) 
+| 150   | Das Tantra Edelstein-Ei (von Tim) |[herz-und-geist.de](https://www.herz-und-geist.de/yoni-ei/) 
+| 149   | Bioresonanzgeräte |[amazon.de](https://amzn.to/2TseB8J), [youtube.com](https://www.youtube.com/watch?v=XsIpFRJmPOM), [link.springer.com](https://link.springer.com/article/10.1007/s15007-019-1859-0) 
+| 148   | Der Lovetuner |[heavenseven.ch](https://www.heavenseven.ch/) 
+| 147   | Flat Earth FC |[flatearthfc.com](https://flatearthfc.com/) 
+| 146   | [Lästige Mücken und neue Homöopathie](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/laestigeMueckenUndNeueHomoeopathie) |[antenne.de](https://www.antenne.de/experten-tipps/gesundheit/mueckenplage-in-bayern-hier-ist-sie-besonders-laestig-und-welcher-trick-wunder-wirkt?jwsource=cl) 
+| 145   | [Rumpologie](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Rumpologie) |[jacquelinstallone.com](http://www.jacquelinestallone.com/rumps.html)
+| 144   | [FlatearthSingles](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/FlatearthSingles) |[flatearthsingles.com](https://flatearthsingles.com/) 
+| 143   | [Das Harmonei](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Harmonei) |[ambition.life](https://www.ambition.life/)
+| 142   | [Combas Handypflaster](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/ComBas) | [combas.info](http://www.combas.info/) 
+| 141   | [Aquion](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Aquion) | [aquion.de](https://www.aquion.de/) 
+| 140   | [Lernpaket freie Energie](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/LernpaketFreieEnergie) | [amazon.de](https://www.amazon.de/FRANZIS-Lernpaket-Experimente-freien-Energien/dp/3645652779) 
