@@ -28,4 +28,4 @@
 | 143   | [Das Harmonei](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Harmonei) |[ambition.life](https://www.ambition.life/)
 | 142   | [Combas Handypflaster](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/ComBas) | [combas.info](http://www.combas.info/) 
 | 141   | [Aquion](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/Aquion) | [aquion.de](https://www.aquion.de/) 
-| 140   | [Lernpaket freie Energie](https://worldpotato.github.io/minkorrekter-Schwurbel/artikel/LernpaketFreieEnergie) | [amazon.de](https://www.amazon.de/FRANZIS-Lernpaket-Experimente-freien-Energien/dp/3645652779) 
+| 140   | [Lernpaket freie Energie](artikel/LernpaketFreieEnergie) | [amazon.de](https://www.amazon.de/FRANZIS-Lernpaket-Experimente-freien-Energien/dp/3645652779) 
